@@ -1,4 +1,4 @@
-# Olá! Eu sou a Paty Amâncio 👋
+# Olá! Eu sou  Paty Amâncio 👋
 
 ### 📊 Especialista em Produção Industrial e apaixonada por Indústria 4.0.
 
